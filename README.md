@@ -9,9 +9,7 @@ Forget it haha, she's not that important, and also not worthy of your time.
 
 Just a warning, that girl isn't someone who you should care too much about. 
 
-She will cause trouble again and again because she overthink too much. 
-
-Am i right? 
+She will cause trouble again and again because she overthink too much. Am i right? Hahaha
 
 But hey, if you're not discouraged by that then go on, do whatever you want...
 
@@ -32,9 +30,7 @@ Oh, by the way, she left some weird message here. It could be useful to you if y
 
 ขอเตือนนะว่าผู้หญิงคนนั้นไม่ใช่คนที่คุณควรจะใส่ใจมากเกินไป
 
-หล่อนจะสร้างปัญหาครั้งแล้วครั้งเล่าเพราะหล่อนคิดมากและงี่เง่าไปเอง 
-
-ฉันพูดถูกมั้ย?
+หล่อนจะสร้างปัญหาครั้งแล้วครั้งเล่าเพราะหล่อนคิดมากและงี่เง่าไปเอง ฉันพูดถูกมั้ย?555555
 
 แต่ถ้าคุณไม่ติดอะไรก็ทำตามใจเถอะ...
 
