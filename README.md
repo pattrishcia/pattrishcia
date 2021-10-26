@@ -1,8 +1,11 @@
 Oh hello there! 
+
 Are you looking for someone? 
+
 Ah, you mean that girl.
 
 Well unfortunately, she's not here. 
+
 But why are you looking for her anyway? Is she your friend? 
 
 Forget it haha, she's not that important, and also not worthy of your time.
@@ -24,6 +27,7 @@ Oh, by the way, she left some weird message here. It could be useful to you if y
 มาหาใครรึเปล่า? 
 
 อ๋า ผู้หญิงคนนั้นน่ะหรอ
+
 แย่หน่อยนะ แต่เธอไม่ได้อยู่ที่นี่หรอก 
 
 ว่าแต่คุณมาตามหายัยนั่นทำไมล่ะ? หล่อนเป็นเพื่อนของคุณหรอ?
